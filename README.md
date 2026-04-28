@@ -84,5 +84,5 @@ Actualmente en proceso de aprendizaje en:
 
 ## 💡 Frase personal
 
-"Siempre hay una solución, solo hay que encontrarla."
+"Stay hungry, stay foolish"
 
